@@ -1,0 +1,3 @@
+- 🚀 Hi, I’m @BogiMTBx 
+- ⚗️ I’m interested in Polymer Technology and Engineering - Material Science
+- 🌱 I’m currently learning to MOD Minecraft XD
